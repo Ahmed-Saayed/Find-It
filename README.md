@@ -1,8 +1,8 @@
 # Final_project
 
+![Image](https://github.com/user-attachments/assets/5d3d2e1b-d516-4db1-839b-4528652f3e47)
+
 (Presentation Link https://www.canva.com/design/DAGdgfrWiR0/w1mG8QLiS_X5Hc-v_ZlKSg/edit)
-
-
 
 ![Image](https://github.com/user-attachments/assets/bb165821-7864-4cf1-a2d6-0f7f7abb1ee0)
 
